@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @cwacho
+- 👀 I’m interested in cheese and ghouls.
+- 🌱 I’m currently learning about mid-century Polish furniture design.
+- 💞️ I’m looking to collaborate on tax evasion.
+- 📫 How to reach me ... don't. 
